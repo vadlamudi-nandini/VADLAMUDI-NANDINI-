@@ -1,4 +1,4 @@
-# Hi there🖐 
+# Hi there🖐 , I'm Nandini Vadlamudi
 
 ![andrew-neel-ute2XAFQU2I-unsplash-5](https://github.com/user-attachments/assets/d6d0632c-dec6-49ca-9ce1-f88239cb7cf3)
 
