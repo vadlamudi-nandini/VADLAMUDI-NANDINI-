@@ -1,7 +1,7 @@
 # VADLAMUDI-NANDINI 
 Hello World, this is my Profile
 
-![andrew-neel-ute2XAFQU2I-unsplash-2](https://github.com/user-attachments/assets/5306ad27-eaff-40d6-a767-9d056dae5859)
+![andrew-neel-ute2XAFQU2I-unsplash-5](https://github.com/user-attachments/assets/d6d0632c-dec6-49ca-9ce1-f88239cb7cf3)
 
 
 **Aspiring Cloud Engineer | AWS Intern | Python Developer**
